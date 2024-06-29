@@ -7,7 +7,6 @@ My CheckList:
 * special edging
 * special gooning
 * i see you : MortiGlobalGG
-*  i was here sasha234312 
-
 *  i was here sasha234312
 * DxrkSide has been here
+* its second story line bru, nvm its third now lol
